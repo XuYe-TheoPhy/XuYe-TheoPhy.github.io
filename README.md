@@ -1,4 +1,4 @@
-# 叶旭  yex21@lzu.edu.cn
+叶 旭  yex21@lzu.edu.cn
 
 ## 学习之道
 
